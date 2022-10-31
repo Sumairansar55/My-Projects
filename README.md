@@ -56,8 +56,11 @@ The Retrofit (https://theretrofit.co.uk/)
 LRA (https://thelegionellariskassessment.co.uk/)
 Vetus Knife (https://www.vetusknives.com/)
 SKB Consult (https://skbconsult.com/)
-Laila Copywriter
-FlowHCM
-LTU CONSTRUCTION LTD
-Sash Security
-HRS Driving School
+Laila Copywriter (lailacopywriter.com)
+FlowHCM (http://flowhcm.com/)
+LTU CONSTRUCTION LTD (https://ltuconstruction.co.uk/)
+Sash Security (sashsecurity.com.au)
+HRS Driving School (http://www.unitedtuitiongroup.com/hrs-driving/)
+Onyx abaya (https://onyxabaya.com/)
+Tyre daddy (https://webpro.pk/tyredaddy/)
+Ibook (http://ibookpublishers.com/)
