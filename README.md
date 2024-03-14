@@ -106,21 +106,21 @@ premium blinds https://premiumblindsuk.com/
 amfco
 aussie digitals https://aussiedigitals.com.au/
 amz https://amzsquare.com/
-green line cabs
-Your extra space
-know the stuff
-hashmanis
-sincere marketing
-kanadev
-octa sols
-blue dot
-data sys
-quran academy
+green line cabs https://greenlinecabs.co.uk/
+Your extra space https://yourextraspace.co.uk/
+know the stuff https://knowthestuffs.com/
+hashmanis 
+sincere marketing https://sinceremarketingagency.com.au/
+kanadev https://kanadev.ca/
+octa sols http://octasols.com/
+blue dot https://bluedotme.com/
+data sys https://datasys.ae/
+quran academy https://www.kanzulhuda.com/
 MMI Data
-luxe trend interior
-smart choice plumbing
-ivy blinds
-sheffield recovery
+luxe interior trend
+smart choice plumbing https://smartchoiceplumbing.com.au/
+ivy blinds https://premiumblindsuk.com/ivy-blinds/
+sheffield recovery https://sheffieldrecovery.com/
 house repair
 Road battery
 amfco
