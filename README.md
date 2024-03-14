@@ -81,32 +81,31 @@ Socio Trafic (https://www.sociotraffic.com/)
 Al arab (http://alarabtents.com/)     
 Doctor Shaukat (https://drsshaukat.co.uk/)     
 Ibook Publisher (http://ibookpublishers.com/)     
-ECO HOUSE
-Luxe Transformations
-Custom Boxes
-Cloud9ine
-pak observer
-Digitomacy
-Active.ae
-Voe
-Coolvan
-Dua Shopping mall
-taxi rent
-HVAC
-Royal event cars
+ECO HOUSE https://ewistore.co.uk/
+Custom Boxes https://customboxesclub.com/
+Cloud9ine https://www.csiltd.co.uk/public-cloud/
+pak observer https://pakobserver.net/
+Digitomacy  https://digitomacy.com/
+Active.ae https://activ.ae/
+Voe https://voe.ae/en/
+Coolvan https://coolvan.ae/
+Dua Shopping mall https://duashoppingmall.com/
+taxi rent https://taxirent.co.uk/
+HVAC https://siddiquihvacr.ae/ 
+Royal event cars https://royaleventcars.co.uk/
 Digital wolf
-Drop shipping
-Mas for new future
-Monthly insta
-Automatic insta
-rouhi
-die casting
-laouie
-match fragrances
-premium blinds
+Drop shipping https://luminexmart.com/
+Mas for new future https://masfornewfuture.com/
+Monthly insta https://monthlyinsta.com/
+Automatic insta https://automaticinstalikes.com/
+rouhi https://rouhijewellery.co.uk/
+die casting https://diecasting.ae/
+laouie https://growwithlaouie.com/
+match fragrances https://www.matchfragrances.co.uk/
+premium blinds https://premiumblindsuk.com/
 amfco
-aussie digitals
-amz
+aussie digitals https://aussiedigitals.com.au/
+amz https://amzsquare.com/
 green line cabs
 Your extra space
 know the stuff
