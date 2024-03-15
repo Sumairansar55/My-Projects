@@ -1,6 +1,4 @@
 # My-Projects
-**Service Based Websites:**
-
 olfen (https://olfenbeauty.com/)                                
 wallace (https://wallacelegal.co.uk/)                         
 PI (https://privateinvestigationsuk.net/)                       
