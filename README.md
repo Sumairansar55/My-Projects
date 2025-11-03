@@ -1,4 +1,4 @@
-**🌐 Digital Marketing / SEO / Social Media**
+**💼 Marketing Agencies / Digital Marketing**
 
 https://seohub.pk
 
@@ -34,7 +34,9 @@ https://sntpartners.ae
 
 https://theappstop.com/
 
-**🏥 Health / Medical / Wellness**
+https://teamsquaredadv.com/
+
+**🩺 Health, Medical & Wellness**
 
 https://sleepingpillss.co.uk
 
@@ -64,7 +66,7 @@ https://ascenteum.org/
 
 https://www.ascenteum.co.uk/
 
-**⚖️ Legal / Investigation / Claims**
+**⚖️ Legal, Investigation & Compliance**
 
 https://wallacelegal.co.uk/
 
@@ -76,7 +78,7 @@ https://bpsscheck.co.uk/
 
 https://thebackgroundchecker.co.uk
 
-**🏫 Education / Academic Help**
+**🎓 Education & Training**
 
 https://academicshelper.com/
 
@@ -94,7 +96,7 @@ https://almanaltraining.com
 
 https://haward.org/
 
-**💻 IT / Software / Tech Companies**
+**💻 IT, Software & Tech Companies**
 
 https://webpro.pk/
 
@@ -120,15 +122,11 @@ https://skbconsult.com/
 
 https://kanadev.ca/
 
-https://teamsquaredadv.com/
-
 https://webxpertz.co.uk/
 
 https://spectreco.com/
 
 https://www.tlstechno.com/
-
-https://theappstop.com/
 
 https://www.pocketrisk.com/
 
@@ -136,7 +134,7 @@ https://riskprofiling.ca/
 
 https://www.talentorbit.de/
 
-**🚗 Automobile / Transport / Taxi / Chauffeur**
+**🚖 Taxi & Chauffeur Services**
 
 https://taxirent.co.uk/
 
@@ -188,7 +186,7 @@ https://theofficialblackcabcompany.com
 
 https://www.aahenleytaxi.co.uk/
 
-**🏠 Home Improvement / Construction / Interiors**
+**🧱 Construction, Interiors & Home Improvement**
 
 https://luxziinteriors.com.au/
 
@@ -232,9 +230,7 @@ Clean N Green Lawn Services (GMB)
 
 https://championoutdoorlighting.com/
 
-**🛍️ E-commerce / Retail / Product Stores**
-
-https://olfenbeauty.com/
+**🛍️ Vaping Stores**
 
 https://ggvapes.co/
 
@@ -244,7 +240,9 @@ https://juicedoutvapes.co.uk/
 
 http://pakvapes.pk/
 
-https://matchfragrances.co.uk/
+**👗 Fashion, Jewellery & Beauty**
+
+https://olfenbeauty.com/
 
 https://rouhijewellery.co.uk/
 
@@ -252,9 +250,13 @@ https://onyxabaya.com/
 
 https://awrahabayas.com/
 
-https://duashoppingmall.com/
-
 https://arsenaljackets.com/
+
+https://mystiglam.com/
+
+**🛒 E-commerce & Retail Stores**
+
+https://duashoppingmall.com/
 
 https://shopingrite.pk/
 
@@ -266,8 +268,6 @@ https://cheaptripbiz.com/
 
 https://growwithlaouie.com/
 
-https://mystiglam.com/
-
 https://meditools.com.au/shop/
 
 https://suntchampionshipbelts.com/
@@ -278,7 +278,7 @@ https://cakecraftuae.com/
 
 https://mypatiolife.com/
 
-https://Thespabrothers.com/
+https://thespabrothers.com/
 
 https://bluewavespas.com/
 
@@ -288,7 +288,7 @@ https://www.spasoforegon.com/
 
 coloradospringshottubs.com
 
-https://Goldencamera.pk
+https://goldencamera.pk
 
 https://thetotebagcompany.packpointint.com/
 
@@ -296,7 +296,7 @@ https://packpointint.com
 
 https://industrialsupplygroups.com
 
-**🕌 UAE / Business & Services**
+**🕌 UAE Business & Local Services**
 
 https://abacco.ae/
 
@@ -328,9 +328,7 @@ https://www.houseshiftingdubai.net
 
 https://www.scrapbuyeralluae.com/
 
-**🧳 Travel / Hospitality / Lifestyle**
-
-https://cheaptripbiz.com/
+**✈️ Travel & Lifestyle**
 
 https://allthatallures.com/
 
@@ -340,13 +338,7 @@ https://yourextraspace.co.uk/
 
 https://knowthestuffs.com/
 
-https://spasofcolorado.com/
-
-https://bluewavespas.com/
-
-https://spasoforegon.com/
-
-**🧾 Corporate / Consultancy / Logistics**
+**🚛 Logistics, Business & Corporate**
 
 https://bismillahlogistics.com/
 
@@ -368,7 +360,7 @@ https://kmansoori.com/
 
 https://llwmg.com/
 
-**🎨 Creative / Branding / Misc**
+**🎨 Creative, Branding & Miscellaneous**
 
 https://artsybees.com/
 
@@ -377,8 +369,6 @@ https://orchidcompany.com/
 https://arliklarik.com/
 
 https://waciestech.com/artistic/wp-admin/
-
-https://ileftextile.com/
 
 https://rnklondon.com/
 
