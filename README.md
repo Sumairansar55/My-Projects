@@ -1,24 +1,40 @@
-🌐 Digital Marketing / SEO / Social Media
+**🌐 Digital Marketing / SEO / Social Media**
 
 https://seohub.pk
+
 http://seohub.ae
+
 https://markito.digital
+
 https://pakistanseoservices.com/
+
 https://digitomacy.com/
+
 https://www.sociotraffic.com/
+
 https://monthlyinsta.com/
+
 https://automaticinstalikes.com/
+
 https://sinceremarketingagency.com.au/
+
 https://growwithlaouie.com/
+
 https://masfornewfuture.com/
+
 https://brandonut.com/
+
 https://webpro.pk/fresh-start/
+
 https://webpro.pk/taglime/wp-admin
+
 https://webpro.pk/aethos/
+
 https://sntpartners.ae
+
 https://theappstop.com/
 
-🏥 Health / Medical / Wellness
+**🏥 Health / Medical / Wellness**
 
 https://sleepingpillss.co.uk
 
@@ -48,7 +64,7 @@ https://ascenteum.org/
 
 https://www.ascenteum.co.uk/
 
-⚖️ Legal / Investigation / Claims
+**⚖️ Legal / Investigation / Claims**
 
 https://wallacelegal.co.uk/
 
@@ -60,7 +76,7 @@ https://bpsscheck.co.uk/
 
 https://thebackgroundchecker.co.uk
 
-🏫 Education / Academic Help
+**🏫 Education / Academic Help**
 
 https://academicshelper.com/
 
@@ -78,7 +94,7 @@ https://almanaltraining.com
 
 https://haward.org/
 
-💻 IT / Software / Tech Companies
+**💻 IT / Software / Tech Companies**
 
 https://webpro.pk/
 
@@ -120,7 +136,7 @@ https://riskprofiling.ca/
 
 https://www.talentorbit.de/
 
-🚗 Automobile / Transport / Taxi / Chauffeur
+**🚗 Automobile / Transport / Taxi / Chauffeur**
 
 https://taxirent.co.uk/
 
@@ -172,7 +188,7 @@ https://theofficialblackcabcompany.com
 
 https://www.aahenleytaxi.co.uk/
 
-🏠 Home Improvement / Construction / Interiors
+**🏠 Home Improvement / Construction / Interiors**
 
 https://luxziinteriors.com.au/
 
@@ -216,7 +232,7 @@ Clean N Green Lawn Services (GMB)
 
 https://championoutdoorlighting.com/
 
-🛍️ E-commerce / Retail / Product Stores
+**🛍️ E-commerce / Retail / Product Stores**
 
 https://olfenbeauty.com/
 
@@ -280,7 +296,7 @@ https://packpointint.com
 
 https://industrialsupplygroups.com
 
-🕌 UAE / Business & Services
+**🕌 UAE / Business & Services**
 
 https://abacco.ae/
 
@@ -312,7 +328,7 @@ https://www.houseshiftingdubai.net
 
 https://www.scrapbuyeralluae.com/
 
-🧳 Travel / Hospitality / Lifestyle
+**🧳 Travel / Hospitality / Lifestyle**
 
 https://cheaptripbiz.com/
 
@@ -330,7 +346,7 @@ https://bluewavespas.com/
 
 https://spasoforegon.com/
 
-🧾 Corporate / Consultancy / Logistics
+**🧾 Corporate / Consultancy / Logistics**
 
 https://bismillahlogistics.com/
 
@@ -352,7 +368,7 @@ https://kmansoori.com/
 
 https://llwmg.com/
 
-🎨 Creative / Branding / Misc
+**🎨 Creative / Branding / Misc**
 
 https://artsybees.com/
 
