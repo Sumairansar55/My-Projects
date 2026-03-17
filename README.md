@@ -86,18 +86,17 @@ https://earwaxremovalclinicsuk.co.uk
 🛍️ E-commerce / Product Stores
 
 https://olfenbeauty.com
- | https://ggvapes.co
+ | https://vapebazaar.pk/
  | https://juicedoutvapes.co.uk
- | https://pakvapes.pk
- | https://vapecave.co
- | https://rouhijewellery.co.uk
+ | https://vapecave.store/
+ | https://ruhijewel.com/
+ | https://ruhijewellers.com/
  | https://kuchijewels.com
  | https://onyxabaya.com
  | https://awrahabayas.com
  | https://arsenaljackets.com
  | https://matchfragrances.co.uk
  | https://premiumblindsuk.com
- | https://ivy-blinds.co.uk
  | https://luxziinteriors.com.au
  | https://novelinteriors.co.uk
  | https://furnishmeister.com
@@ -108,8 +107,7 @@ https://olfenbeauty.com
  | https://expressgiftservice.com
  | https://easycarsalesandservices.com.au
  | https://ileftextile.com
- | https://ileftextile.com
- | https://ileftextile.com
+
 
 🚗 Automobile / Transport
 
@@ -118,30 +116,28 @@ https://bismillahlogistics.com
  | https://tyre-daddy.co.uk
  | https://roadbatteryreplacement.com.au
  | https://towsquad.com.au
- | https://coolvan.ae
- | https://naritarentacar.com
- | https://ask.taxi
+ | https://www.coolvan.co.uk/
  | https://pickuprentaldubai.net
  | https://houseshiftingdubai.ae
- | https://house-shiftingdubai.net
+ 
 
 🏗️ Construction & Real Estate
 
-https://ltuconstruction.co.uk
+https://lticonstruction.co/
  | https://luxerefurbs.co.uk
  | https://greatermelbournesurveyors.com.au
  | https://southoconcrete.com.au
- | https://jamoconstruction.co.uk
+ | https://jamconstruction.com/
  | https://zeb-homes.com
  | https://afnanlandscaping.com
- | https://harbinsme.com
+ | https://harbinsme.com/
+ |  https://lux-interiors.co.uk/
 
 💡 Home, Lifestyle & Services
 
 https://loungemaster.com.au
- | https://rightplumber.co.uk
  | https://smartchoiceplumbing.com.au
- | https://premiumblindsuk.com/ivy-blinds
+ | https://premiumblindsuk.com/
  | https://cleanngreen.com
  | https://cleancustomconcrete.com
  | https://championoutdoorlighting.com
@@ -154,47 +150,38 @@ https://loungemaster.com.au
 ⚙️ Corporate / Legal / Consulting
 
 https://wallacelegal.co.uk
- | https://privateinvestigationsuk.net
+ | https://privateinvestigationsuk.com/
  | https://voe.ae
  | https://skbconsult.com
  | https://sntpartners.ae
- | https://managementassignmenthelper.com
+ | https://privateinvestigationsuk.com/
  | https://haward.org
  | https://llwmg.com
  | https://mth-partner.de
 
 🎨 Creative / Branding / Writing
 
-https://lailacopywriter.com
- | https://writershub.pk/malik/
+https://www.lailacopywriter.com/
  | https://paragonpatches.com
- | https://teamquaredadv.com
- | https://brandonut.com
+ | https://teamsquaredadv.com/
  | https://kmansoori.com
 
 🔒 Security & Safety
 
 https://sashsecurity.com.au
  | https://orientcctv.com
- | https://thelegionellariskassessment.co.uk
 
 💼 Business / Miscellaneous
 
 https://orchidcompany.com
  | https://bluewateraccounts.co.uk
  | https://mbpinc.net
- | https://mbpinc.net/ae/mbpincaeadmin
  | https://technorica.com
- | https://alhassanpk.com
+ | https://alhassan.pk/
  | https://bukidinternational.com
  | https://bukidinternational.com/lifepath-community/
  | https://pakobserver.net
- | https://ileftextile.com
  | https://datasys.ae
- | https://ileftextile.com
- | https://voe.ae/en
- | https://officialweddingblacktaxi.co.uk/anbtransic
  | https://cheaptripbiz.com
- | https://ileftextile.com
  | https://knowthestuffs.com
- | https://ileftextile.com
+
