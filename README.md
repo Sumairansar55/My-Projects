@@ -9,17 +9,14 @@ https://hyflytaxis.co.uk
  | https://www.primetaxis.uk
  | https://www.aahenleytaxi.co.uk
  | https://corker.taxi
- | https://my-localcar.uk
- | https://westwaycars.com
+ | https://www.mylocalcar.uk/
+ | https://westway-cars.co.uk/
  | https://taxirent.co.uk
  | https://royaleventcars.co.uk
- | https://taxiinleicester.online/latairporttaxi/
- | https://taxiinleicester.online/taxiinleicester/
  | https://londonblackcabtransfers.com
  | https://theofficialblackcabcompany.com
  | https://officialweddingblacktaxicompany.co.uk
  | https://xpressairporttransfer.com
- | https://363.46e.myftpupload.com
 
 🧠 Education
 
@@ -39,8 +36,8 @@ https://academicshelper.com
 
 https://webpro.pk
  | https://technorica.com
- | https://vsmartit.pk
- | https://datasys.ae
+ | https://vsmart.pk/
+ | https://datasys.com/
  | https://itecknologi.com
  | https://logivision.com
  | https://cloudsummittechnologies.com
@@ -48,46 +45,37 @@ https://webpro.pk
  | https://quadiverse.com
  | https://skbconsult.com
  | https://tlstechno.com
- | https://bluewateraccounts.co.uk
- | https://kanadev.ca
- | https://active.ae
+ | https://wearebluewater.co.uk/
  | https://activ.ae
  | https://ipcentricsys.com
  | https://octasols.com
  | https://teccodd.com
- | https://taglime.webpro.pk
- | https://fresh-start.webpro.pk
- | https://aethos.webpro.pk
- | https://brandonut.com
+ | https://www.taglimeagency.com/
+ | https://www.aethos.com/
  | https://brandonut.com
  | https://digitomacy.com
- | https://waciestech.com
 
 📈 Marketing Agencies
 
 https://seohub.pk
  | https://seohub.ae
  | https://pakistanseoservices.com
- | https://markito.digital
- | https://sociotraffic.com
+ | https://digitmarkito.com/
  | https://chasemycloud.com
- | https://webxpertz.co.uk
- | https://sinceremarketingagency.com.au
+ | https://www.webxpertz.ca/
+ | https://sincere.digital/
  | https://monthlyinsta.com
  | https://automaticinstalikes.com
  | https://growwithlaouie.com
- | https://hashmanis.com
+ | https://hashmanis.com.pk/
  | https://masfornewfuture.com
  | https://laouie.com
  | https://digitomacy.com
- | https://brandonut.com
- | https://active.ae
- | https://socotraffic.com
+
 
 🏥 Health & Wellness
 
-https://sleepingpillss.co.uk
- | https://earwaxremovalclinicsuk.co.uk
+https://earwaxremovalclinicsuk.co.uk
  | https://humeirashealings.ae
  | https://sos-wellness.org
  | https://nurseamerica.us
