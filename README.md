@@ -17,6 +17,9 @@ https://hyflytaxis.co.uk
  | https://theofficialblackcabcompany.com
  | https://officialweddingblacktaxicompany.co.uk
  | https://xpressairporttransfer.com
+ | https://reseaulimo.com/
+ | https://aahenleytaxi.co.uk/
+ | https://friendlycab.co.uk/
 
 🧠 Education
 
@@ -82,6 +85,11 @@ https://earwaxremovalclinicsuk.co.uk
  | https://alliedhomehealthhouston.com
  | https://dentifydental.com.au
  | https://strategicmedicalbrokers.com
+ | https://maxoutnutrition.co.uk/
+ | https://wellpakistan.com/
+ | https://onlinedawai.pk/
+ | https://everbests.com/
+ | https://etizolab.com/
 
 🛍️ E-commerce / Product Stores
 
@@ -107,8 +115,11 @@ https://olfenbeauty.com
  | https://expressgiftservice.com
  | https://easycarsalesandservices.com.au
  | https://ileftextile.com
-
-
+ | https://suntchampionshipbelts.com/
+ | https://dlink.pk/
+ | https://ewowstuffs.com/
+ | https://goldencamera.pk/
+ 
 🚗 Automobile / Transport
 
 https://bismillahlogistics.com
@@ -165,11 +176,21 @@ https://www.lailacopywriter.com/
  | https://paragonpatches.com
  | https://teamsquaredadv.com/
  | https://kmansoori.com
-
+ | https://zaphyrx.com/ 
+ | https://zaphyrx.com/
+ | https://zaphyrx.com/
+ | https://www.hightasteceramics.com/
+ | https://zephyrrecruit.com/
+ | https://gnet-inc.com/
+ | https://brandoraglobal.com/
+ | https://www.cabisol-sa.com/
+      
 🔒 Security & Safety
 
 https://sashsecurity.com.au
- | https://orientcctv.com
+ | https://orientcctv.com  
+ | https://advisorsflow.ai/
+ | https://riskprofiling.ca/
 
 💼 Business / Miscellaneous
 
