@@ -15,7 +15,6 @@ https://hyflytaxis.co.uk
 | https://royaleventcars.co.uk
 | https://londonblackcabtransfers.com
 | https://theofficialblackcabcompany.com
-| [suspicious link removed]
 | https://xpressairporttransfer.com
 | https://reseaulimo.com
 | https://friendlycab.co.uk
@@ -39,7 +38,6 @@ https://academicshelper.com
 | https://almanaltraining.com
 | https://ascenteum.org
 | https://akademosresearch.com
-| [suspicious link removed]
 | https://www.canonicaltutors.com
 | https://cactraining.co.uk
 | https://albalaghbooks.com
@@ -96,8 +94,6 @@ https://seohub.pk
 https://earwaxremovalclinicsuk.co.uk
 | https://humeirashealings.ae
 | https://sos-wellness.org
-| [suspicious link removed]
-| [suspicious link removed]
 | https://dentifydental.com.au
 | https://strategicmedicalbrokers.com
 | https://maxoutnutrition.co.uk
