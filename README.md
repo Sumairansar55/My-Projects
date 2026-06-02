@@ -1,6 +1,6 @@
-🚖 Taxi Services
+🚖 Taxi Services & Chauffeurs
 
-| https://hyflytaxis.co.uk
+https://hyflytaxis.co.uk
 | https://greenlinecars.co.uk
 | https://abtaxisinleicester.co.uk
 | https://localtaxisinleicester.co.uk
@@ -15,13 +15,21 @@
 | https://royaleventcars.co.uk
 | https://londonblackcabtransfers.com
 | https://theofficialblackcabcompany.com
+| [suspicious link removed]
 | https://xpressairporttransfer.com
 | https://reseaulimo.com
 | https://friendlycab.co.uk
+| https://blackpremiumlimo.com
+| https://arenataxis.co.uk
+| https://swiftairporttransfer.co.uk
+| https://goldlinetaxis.co.uk
+| https://chelseachauffeursltd.co.uk
+| https://niagarafallstourlimo.com
+| https://pearsontorontoairporttaxilimo.com
 
-🧠 Education
+🧠 Education & Training
 
-| https://academicshelper.com
+https://academicshelper.com
 | https://managementassignmenthelper.com
 | https://icraa.org
 | https://unitedtuitiongroup.com
@@ -32,10 +40,15 @@
 | https://ascenteum.org
 | https://akademosresearch.com
 | [suspicious link removed]
+| https://www.canonicaltutors.com
+| https://cactraining.co.uk
+| https://albalaghbooks.com
+| https://ladies1stdrivingschool.co.uk
+| https://itajweed.com
 
-💻 IT & Software
+💻 IT, Software & Tech
 
-| https://webpro.pk
+https://webpro.pk
 | https://technorica.com
 | https://vsmart.pk
 | https://datasys.com
@@ -55,10 +68,15 @@
 | https://www.aethos.com
 | https://brandonut.com
 | https://digitomacy.com
+| https://divinevirtuality.com
+| https://theappstop.com
+| https://www.3dprintings.com.au
+| https://fonetech-redditch.co.uk
+| https://fonetech-york.co.uk
 
-📈 Marketing Agencies
+📈 Marketing & GTM Agencies
 
-| https://seohub.pk
+https://seohub.pk
 | https://seohub.ae
 | https://pakistanseoservices.com
 | https://digitmarkito.com
@@ -71,10 +89,11 @@
 | https://hashmanis.com.pk
 | https://masfornewfuture.com
 | https://laouie.com
+| https://atomgtm.com
 
-🏥 Health & Wellness
+🏥 Health, Wellness & Medical
 
-| https://earwaxremovalclinicsuk.co.uk
+https://earwaxremovalclinicsuk.co.uk
 | https://humeirashealings.ae
 | https://sos-wellness.org
 | [suspicious link removed]
@@ -86,10 +105,21 @@
 | https://onlinedawai.pk
 | https://everbests.com
 | https://etizolab.com
+| https://canadiannaturalhealthproductregistry.com
+| https://powerchairrepair.net
+| https://www.medicalhairlosscenternj.com
+| https://coastaldermatologyandplasticsurgery.com
+| https://smilebydrk.com
+| https://heartofhealingtherapeutics.com
+| https://thesanctuarybjjandfitness.com
+| https://yourhomeofwellness.com
+| https://jasmeds.com
+| https://ahhempgroup.com
+| https://meditools.com.au/shop
 
-🛍️ E-commerce / Product Stores
+🛍️ E-commerce & Retail Stores
 
-| https://olfenbeauty.com
+https://olfenbeauty.com
 | https://vapebazaar.pk
 | https://juicedoutvapes.co.uk
 | https://vapecave.store
@@ -115,10 +145,18 @@
 | https://dlink.pk
 | https://ewowstuffs.com
 | https://goldencamera.pk
+| https://www.kayscaps.com
+| https://www.aromatekstore.com
+| https://smokekulture.ca
+| https://6ixmerchandise.ca
+| https://www.azaelabaya.ae
+| https://thekentro.com
+| https://rnklondon.com
+| https://cakecraftuae.com
 
-🚗 Automobile / Transport
+🚗 Automobile & Logistics
 
-| https://bismillahlogistics.com
+https://bismillahlogistics.com
 | https://onestopmobiletyres247.co.uk
 | https://tyre-daddy.co.uk
 | https://roadbatteryreplacement.com.au
@@ -126,10 +164,13 @@
 | https://www.coolvan.co.uk
 | https://pickuprentaldubai.net
 | https://houseshiftingdubai.ae
+| https://autodetailsusa.com
+| https://usautospa.com
+| https://synoil4sale.com
 
 🏗️ Construction & Real Estate
 
-| https://lticonstruction.co
+https://lticonstruction.co
 | https://luxerefurbs.co.uk
 | https://greatermelbournesurveyors.com.au
 | https://southoconcrete.com.au
@@ -138,10 +179,33 @@
 | https://afnanlandscaping.com
 | https://harbinsme.com
 | https://lux-interiors.co.uk
+| www.integral.construction
+| https://www.generalcontractorgrassvalley.com
+| www.bryanmurphybuilder.com
+| www.elitestoneservicesinc.com
+| www.ensleyiron.com
+| https://sunnoconstruction.com
+| https://shine-stone.ch
 
-💡 Home, Lifestyle & Services
+🔧 Trade Services (Plumbing, Gutters, Chimney & HVAC)
 
-| https://loungemaster.com.au
+www.77waterwell.com
+| www.lechlergutters.com
+| www.lordsradon.com
+| www.parklawnheating.com
+| www.colvenbackplumbing.com
+| www.tidewaterchimney.com
+| https://www.kovalsupply.com
+
+⚡ Electrical & Energy
+
+www.edc-electrical.com
+| https://juniperenergy.net
+| https://3nttae.com
+
+🏡 Home, Lifestyle, Landscaping & Spas
+
+https://loungemaster.com.au
 | https://smartchoiceplumbing.com.au
 | https://cleanngreen.com
 | https://cleancustomconcrete.com
@@ -151,20 +215,35 @@
 | https://bluewavespas.com
 | https://spasoforegon.com
 | https://spasofcolorado.com
+| https://impactexteriors.com
+| https://worldwidewindow.net
+| www.miamitikihut.com
+| www.carolinamoldexperts.com
+| www.procarelandscapers.com
+| www.selightingdesign.com
+| www.elitedesignandlandscaping.com
+| coloradospringshottubs.com
+| https://aqlandscapeuae.com
 
-⚙️ Corporate / Legal / Consulting
+⚙️ Corporate, Legal & Financial Consulting
 
-| https://wallacelegal.co.uk
+https://wallacelegal.co.uk
 | https://privateinvestigationsuk.com
 | https://voe.ae
 | https://sntpartners.ae
 | https://haward.org
 | https://llwmg.com
 | https://mth-partner.de
+| www.jjinvestmentspropertymanagement.com
+| www.hearnlawfirm.net
+| https://mockapital.com
+| https://taxinnovex.ae
+| https://askariexchange.com
+| https://callistopm.co.nz
 
-🎨 Creative / Branding / Writing
+🎨 Creative, Branding, Apparel & Photography
 
-| https://www.lailacopywriter.com
+https://www.lailacopywriter.com
 | https://paragonpatches.com
 | https://teamsquaredadv.com
 | https://kmansoori.com
@@ -174,17 +253,39 @@
 | https://gnet-inc.com
 | https://brandoraglobal.com
 | https://www.cabisol-sa.com
+| https://britishtailors.com
+| https://customclothiers.us
+| www.papadakisphotography.com
+| https://artsybees.com
+| https://tillerandco.com
 
-🔒 Security & Safety
+🏨 Travel, Hospitality & Retreats
 
-| https://sashsecurity.com.au
+www.jasonsjourneys.com
+| www.kokopelliinn.net
+| www.vistaverderetreat.com
+
+🔒 Security, Safety & Background Verification
+
+https://sashsecurity.com.au
 | https://orientcctv.com
 | https://advisorsflow.ai
 | https://riskprofiling.ca
+| https://thebackgroundchecker.co.uk
+| https://bpsscheck.co.uk
 
-💼 Business / Miscellaneous
+📦 Industrial, Supply & Containers
 
-| https://orchidcompany.com
+https://packpointint.com
+| industrialsupplygroups.com
+| www.catskillcustomcontainers.com
+| https://thetotebagcompany.packpointint.com
+| https://www.scrapbuyeralluae.com
+| https://spectreco.com
+
+💼 Business, Media & Miscellaneous
+
+https://orchidcompany.com
 | https://bluewateraccounts.co.uk
 | https://mbpinc.net
 | https://alhassan.pk
@@ -194,3 +295,8 @@
 | https://datasys.ae
 | https://cheaptripbiz.com
 | https://knowthestuffs.com
+| www.boystomenyouthprograms.com
+| www.primeiservices.com
+| https://www.develdas.com
+| https://www.idpapa.com
+| https://www.talentorbit.de
